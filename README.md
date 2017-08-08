@@ -1,2 +1,0 @@
-# Super-Javinha-DEFINITIVO
-AGORA FOI
